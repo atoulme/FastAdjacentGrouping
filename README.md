@@ -1,0 +1,1 @@
+# fAsT aDjAcEnT gRoUpInG
